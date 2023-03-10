@@ -1,4 +1,6 @@
-# My Last Year
+# **My Last Year**
+
+## Intro
 
 The last year (and some change) of my life has been a total roller coaster. In October of 2021, two weeks before my birthday, I found out I was 6 weeks pregnant with my son. Although we were excited for this new chapter of our lives,we were in complete shock. We had just invested a lot of money into starting our business and did not know how we were going to afford bringing a new life into this world. Money was tight during my pregnancy and my boyfriend wasn't able to enjoy the small moments with me because he had to work a lot but we were able to make it work. I appreciate all the long nights and everything he did to make sure our son would have everything he wants and needs. 
 
@@ -16,5 +18,10 @@ Our son is our everything! I love being able to watch him grow and discover new 
    As of Monday, I found out that I will being interning at Providence Health & Services. I am excited and greatful for this opportunity! I know this will open a lot of opportunities in my career.
    
 ## YearUp Accomplishments
+
+My greatest acconplishement in this program would be reciving an internship with the qualifications I needed. My first conversation with Nate about internship I told him that I would really like a position that was remote. He let me know from the beginning that I would need to work hard in my classes, keep up with expenctaions and get high marks in my classes. I was able to accomplish all these tasks and it paid off in my internship position. 
+
+! [alt text] (
+
 
 
