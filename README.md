@@ -21,7 +21,7 @@ Our son is our everything! I love being able to watch him grow and discover new 
 
 My greatest acconplishement in this program would be reciving an internship with the qualifications I needed. My first conversation with Nate about internship I told him that I would really like a position that was remote. He let me know from the beginning that I would need to work hard in my classes, keep up with expenctaions and get high marks in my classes. I was able to accomplish all these tasks and it paid off in my internship position. 
 
-! [My little family] (image0333.jpg)
+! [My little family] (IMG_0333.jpg)
 
 
 
